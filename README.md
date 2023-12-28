@@ -1,2 +1,0 @@
-# KutayCanAltunbay217087009
- 
